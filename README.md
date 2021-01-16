@@ -1,4 +1,4 @@
-https://www.gsmarena.com/_11-9323.php
+https://www.gsmarena.com/_11-9323.php </br>
 https://www.gsmarena.com/_1-9273.php
 https://www.gsmarena.com/_50005-9529.php
 https://www.gsmarena.com/_ee_hawk-9041.php
